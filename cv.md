@@ -25,7 +25,6 @@ I appreciate that in the last years of school I studied homeschooling (without t
 **Programs:**
  1. Adobe Premiere Pro
  1. Adobe Photoshop
- 1. Adobe Media Encoder
  
 **Programs for code editing:**
   1. Atom
