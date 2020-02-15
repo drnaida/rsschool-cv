@@ -86,4 +86,4 @@ I have been seriously studying English in total for 3 years.
 
 My current level is **Intermediate**. I talk with my teacher in English and visit special speaking clubs every day. That's why I think **my speaking skill is great.** In addition, I studied grammar course and **I'm good at listening**. I can watch from serials on Netflix to lectures from Harvard and Yale. 
 
-My language goals are to achieve the Upper-Intermediate and pass TOEFL. 
+My language goals are **to achieve the Upper-Intermediate** and **pass TOEFL**. 
